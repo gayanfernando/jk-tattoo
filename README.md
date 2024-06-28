@@ -1,1 +1,2 @@
-[link.pdf](https://github.com/gayanfernando/jk-tattoo/files/12842236/link.pdf)
+
+[Batch 07.pdf](https://github.com/user-attachments/files/16024345/Batch.07.pdf)
